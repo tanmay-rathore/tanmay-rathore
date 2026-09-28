@@ -11,7 +11,7 @@ FUN FACT:
           I love to play sports (any sports) , esports game (any sports) , and gym.
           Try to learn new skill beat making , drawing , making games , editing , etc.
           Love to eat junk food but home made.
-          Want to have a pet cat in future.
+          Want to have a pet cat in future..
           
           
           
