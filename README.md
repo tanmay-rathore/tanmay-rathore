@@ -1,6 +1,6 @@
-## Hi there 👋 KHAMAGHANI 🙏
+## Hi there 👋 KHAMAGHANI 🙏https://github.com/tanmay-rathore/tanmay-rathore/blob/main/README.md
 
-I am [TANMAY RATHORE](https://www.instagram.com/kokilltsr) I am a student living in India .
+I am [TANMAY RATHORE](https://www.instagram.com/kokilltsr) ,I am a student living in India .
 
 I am pursuing DEGREE in COMPUTER SCIENCE 💻 from VITB.
 
